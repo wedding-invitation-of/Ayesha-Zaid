@@ -1,0 +1,1 @@
+Transparent PNG starter assets for a Sage Green / Ivory / Champagne Gold Muslim wedding invitation. Use as separate layers, not flattened pages. These lightweight starter illustrations can be refined or supplemented by Claude while preserving the reference palette.
